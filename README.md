@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working in Planigo<br>👯 I’m looking to collaborate on GitHub<br>🤝 I’m looking for help with my Start-Up<br>🌱 I’m currently learning new skills<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working in Planigo<br>👯 I’m looking to collaborate on GitHub<br>🤝 I’m looking for help with my Start-Up<br>🌱 I’m currently learning new skills<br>
 
 
 ## 🌐 Socials:
